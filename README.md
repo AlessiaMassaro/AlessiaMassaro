@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlessiaMassaro
+- 👀 I’m interested in recruiting IT Professionals
+- 🌱 I’m currently learning about recruiting
+- 💞️ I’m looking to collaborate with poeple wanting to grow their careers
+- 📫 How to reach me: alessia@ciba.co.za (CV's only)
